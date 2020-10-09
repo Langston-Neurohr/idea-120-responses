@@ -1,0 +1,1 @@
+For my green screen project I will make the background environment for my zoom I will have a door in the background that will open periodically. When the door opens a new scene will be behind the door each time for the minute long video, displaying different scenes and environments from the outside world and possibly even fantasy realms.
