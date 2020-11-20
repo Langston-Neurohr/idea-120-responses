@@ -1,1 +1,1 @@
-
+For my non linear narrative project I will be making a narrative on a man in school or a job, he will be procrastinating and and putting off his responsibilities because he is tired of committing to the same thing everyday, with no end in sight.
